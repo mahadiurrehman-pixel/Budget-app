@@ -153,6 +153,7 @@ This project helped reinforce:
 BSBIT Student • Python Developer • AI Enthusiast
 
 GitHub: https://github.com/mahadiurrehman-pixel
+Linked in:www.linkedin.com/in/mahadi-ur-rehman-siddiqui-139b93386
 
 ---
 
